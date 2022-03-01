@@ -1,1 +1,1 @@
-Instruction on how to
+Instruction on how to collaborate
